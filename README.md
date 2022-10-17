@@ -1,1 +1,1 @@
-# jubilantisyatem
+# jubilant system
